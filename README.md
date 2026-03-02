@@ -1,1 +1,0 @@
-# ekipyt-1.0-kaynak
